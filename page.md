@@ -1,2 +1,0 @@
-# Jack Madison
-## SFU Economics
